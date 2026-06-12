@@ -1,2 +1,10 @@
-# portofoilo
-Just Website About Me
+# Portofolio
+Selamat datang di portofolio saya.
+
+
+
+
+
+
+
+uhhhhhhhhhhhhhhh
